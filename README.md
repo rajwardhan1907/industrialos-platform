@@ -33,3 +33,14 @@ Commercial licensing and source-code acquisition available.
 Contact:
 your email
 LinkedIn
+
+## Commercial Acquisition
+
+This platform is available for:
+- Source-code licensing
+- White-label licensing
+- Full acquisition
+- Deployment partnerships
+
+Contact:
+rajwardhan0707@gmail.com
